@@ -1,1 +1,2 @@
 - [NP435 4-Speed Transmission - What You Need to Know About This New Process Gearbox](https://youtu.be/VatKEYpdqls)
+- https://www.novak-adapt.com/knowledge/transmissions/manual/np435.html
